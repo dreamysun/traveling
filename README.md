@@ -1,5 +1,8 @@
 # traveling
 
+https://www.chenyusun.com/traveling
+
+
 CONCEPT
 
 Traveling aims to reflect the integration and development of elements in traditional and future music and world. We live in an era of cultural combination and conflicting.  During the process of creation and life journey, we may encounter and absorb different types of elements, traditional, futuristic and dreamlike......In this piece of work, we constantly pass through space according to visual effects of starry sky and rainbows. We also see different elements of objects, and even figures in traditional Peking Opera. They demonstrate the conflict and integration between tradition and future during process of visual and auditory traveling. 
